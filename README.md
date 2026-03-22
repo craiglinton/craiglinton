@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @craiglinton
 
-Follow me on <a rel="me" href="https://risk.social/@craig">Mastodon</a>
+Follow me on <a rel="me" href="https://www.linkedin.com/in/craigalinton/">LinkedIn</a>
